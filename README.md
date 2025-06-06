@@ -1,1 +1,1 @@
-# ShreySolanki-github.io
+# ShreySolanki.github.io
